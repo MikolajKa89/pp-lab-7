@@ -1,2 +1,1 @@
-# pp-lab-7
-a
+to była najcięższa z moich walk
